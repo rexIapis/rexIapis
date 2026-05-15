@@ -9,6 +9,7 @@
  pit on the wall ⠀ ⠀ behold as  
  the crook ⠀in ⠀the hammock  
  plays⠀⠀cruelly with the base  
- of ⠀ the ⠀scales, ⠀ ⠀  trailing  
- wrapped ⠀⠀ in ⠀⠀ a ⠀ gasp!
+ of ⠀ the ⠀scales, ⠀⠀gagged,  
+ bound⠀ and⠀  crafting a tale  
+ trailing⠀wrapped⠀in⠀a gasp
 </p>
